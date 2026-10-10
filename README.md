@@ -2,9 +2,11 @@
 
 EU
 There might be more cheats for various types of games.
+view updates in releases
 
 RU
 читы на разные виды игр возможно будут ещё какие нибудь.
+смотреть обновления в релизах
 
 Ссылки на наши соц сети:
 Telegram:   https://t.me/+mQlSxOOyLchmNjZi
